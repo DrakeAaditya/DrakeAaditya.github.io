@@ -1,2 +1,2 @@
-# DrakeAaditya.github.io
-My Profile
+# Aaditya Gupta
+My Github Page
